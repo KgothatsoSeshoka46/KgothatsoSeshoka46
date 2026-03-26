@@ -1,7 +1,7 @@
 # Hi, I'm Kgothatso 👋
 
 🌐 Aspiring Network Engineer  
-📚 Studies BSc in IT 
+📚 Studied BSc in IT 
 🛠️ Skilled in TCP/IP, Subnetting, and Network Troubleshooting  
 
 ## 🔧 Tools & Technologies
