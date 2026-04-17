@@ -9,3 +9,7 @@
 
 ## 📫 Contact Me
 - kgothatsoseshoka46@gmail.com
+- 079 637 5182
+
+## Other Media
+-linkedin.com/in/kgothaso-seshoka-a893353aa
