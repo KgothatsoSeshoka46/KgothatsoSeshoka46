@@ -12,4 +12,4 @@
 - 079 637 5182
 
 ## Other Media
--linkedin.com/in/kgothaso-seshoka-a893353aa
+- [LinkedIn](https://www.linkedin.com/in/kgothaso-seshoka-a893353aa)
