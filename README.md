@@ -8,7 +8,7 @@
 - Cisco Packet Tracer
 
 ## 📫 Contact Me
-- kgothatsoseshoka46@gmail.com
+- kgothatsoseshoka@gmail.com
 - 079 637 5182
 
 ## Other Media
